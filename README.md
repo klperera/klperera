@@ -1,6 +1,5 @@
 ## Hi there 👋
 I'm Kalpa Perera
-
 <!--
 **klperera/klperera** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
