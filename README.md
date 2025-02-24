@@ -25,5 +25,3 @@
 ## 📫 Let's Connect
 
 ### 📧 Email: klperera660@gmail.com
-
-### 📧 LinkedIn: https://www.linkedin.com/in/kalpa-perera-32a374293?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BYg2YbTtHRHuN%2BwuXWJZe5g%3D%3D
